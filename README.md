@@ -1,0 +1,2 @@
+# premium-opal-setting-001-opal-bezel-setting-doublet-s
+Tired of cracking delicate opals or struggling with doublet stones in your bezel settings? The Opal Bezel Setting &amp; Doublet Stone Jewelry Art Hub is your all-in-one guide to flawless, professional-grade results—without the guesswork.  This hub solves the two biggest pain points in opal jewelry making: mastering the art of bezel setting for fragile
